@@ -19,7 +19,7 @@ My Name is Evan Nielson, I also go by Quintavious
 
 #### Dedication makes dreams come true - Kobe Bryant
 
-![image](https://user-images.githubusercontent.com/106996319/172438679-fb6e3083-1847-4614-bb46-f0b50150aade.png)
+![Kobe Bryant](https://user-images.githubusercontent.com/106996319/172438679-fb6e3083-1847-4614-bb46-f0b50150aade.png)
 
 
 <!---
